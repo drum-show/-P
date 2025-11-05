@@ -1,1 +1,1 @@
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=23&duration=4989&pause=980&color=8D0000&width=435&lines=I+am+trapped.+Stuck+in+a+cycle+;I've+been+able+to+break.;I+want+to+believe+this+is+the+last+time%2C+but+I+don't+know+for+sure." alt="Typing SVG" /></a>
