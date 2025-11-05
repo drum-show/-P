@@ -1,1 +1,1 @@
-[# -C](https://readme-typing-svg.demolab.com/demo/?weight=900&size=23&duration=4989&pause=980&color=8D0000&lines=I+am+trapped.+Stuck+in+a+cycle+;I've+been+able+to+break.;I+want+to+believe+this+is+the+last+time%2C+but+I+don't+know+for+sure.)
+
